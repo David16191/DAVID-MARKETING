@@ -1,4 +1,4 @@
-# Bienvenido a DavidforMarketngG
+# Bienvenido a DavidforMarketingG
 
 ## ¿Quiénes somos?
 
